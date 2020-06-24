@@ -7,3 +7,7 @@ Saga ist eine hochrangige Polizistin im Dienst der Kriminalpolizei von Malmö. S
 * Kompetent
 * Komisch
 * Direkt
+
+Saga pflegte immer wieder zu sagen:
+
+> mmmmmmmmmmmmmmmmm
